@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @riski8823
+- 👀 I’m interested in Programming
+- 🌱 I’m currently learning to realizing my idea
